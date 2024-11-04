@@ -2,7 +2,7 @@
 - 👀 I’m naturally curious and observative  person
 - 🌱 I’m currently learning data analytics...
 - 💞️ I’m looking to collaborate on interesting projects...
-- 📫 How to reach me @ duoxalta:gmail.com
+- 📫 How to reach me:  duoxalta@gmail.com
 - 😄 Pronouns: Female
 - ⚡ Fun fact: 
 
