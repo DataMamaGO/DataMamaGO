@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @DataMamaGO
 - 👀 I’m naturally curious and observative  person
-- 🌱 I’m currently learning data science...
+- 🌱 Enthusiastic Data science student
 - 💞️ I’m looking to collaborate on interesting projects...
 - 📫 How to reach me:  duoxalta@gmail.com
 - 😄 Pronouns: Female
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Too many of them :)
 
 <!---
 DataMamaGO/DataMamaGO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
