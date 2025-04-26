@@ -2,7 +2,7 @@
 - 👀 I’m naturally curious and observative  person
 - 🌱 Enthusiastic Data science student
 - 💞️ I’m looking to collaborate on interesting projects...
-- 📫 How to reach me:  duoxalta@gmail.com
+- 📫 How to reach me:  duoxalta@gmail.com or https://www.linkedin.com/in/oksana-g-2ba982257/
 - 😄 Pronouns: Female
 - ⚡ Fun fact: Too many of them :)
 
